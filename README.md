@@ -2,7 +2,7 @@
 
 🔗 Connect with me:
 - 💻 LinkedIn www.linkedin.com/in/axiy-isakov
-- 💻 https://t.me/axiydevblog
+- 💻 Blog https://t.me/axiydevblog
 
 Feel free to reach out—I'm always up for interesting collaborations! 😊
 
